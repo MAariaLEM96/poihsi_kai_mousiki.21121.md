@@ -220,3 +220,6 @@ http://musichunter.gr/ta-melopoihmena-poihmata/
 
 
 **ΒΙΒΛΙΟΓΡΑΦΙΑ**
+
+- *΄΄Αφιέρωμα Δεκατρία μελοποιημένα ποιήματα Παγκόσμια ημέρα ποίησης΄΄,Μουσικές εbeerίες, 21 Μαρτίου, 2022.*
+https://mousikesebeeries.gr/afieroma-dekatria-melopoiimena-poiimata-pagkosmia-imera-poiisis/
