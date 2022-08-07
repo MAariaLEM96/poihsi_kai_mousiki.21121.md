@@ -230,7 +230,7 @@ https://www.tovima.gr/2021/09/02/culture/aksion-esti-pos-gennithike-to-mnimeiode
 https://www.mothersblog.gr/free-time/story/35184/ethnikos-ymnos-elladas-oloi-oi-stixoi-kai-i-istoria-toy
 - Ετυμολογία και ορισμός,*΄΄Η μουσική δεν ήταν πάντα μουσικής΄΄*.
  https://sites.google.com/site/tinakidubstep/etymologia-kai-orismos
--*Μουσική*, Βικιλεξικό,2022. https://el.wiktionary.org/wiki/%CE%BC%CE%BF%CF%85%CF%83%CE%B9%CE%BA%CE%AE
-- Μπομπέτσης Γανριήλ, *΄΄''Εκεί που τέμνεται η μουσική με την ποίηση΄΄΄΄΄΄΄΄''*, Φιλόλογος Ερμής,2022. https://www.filologos-hermes.info/2019/07/blog-post_13.html
+- *Μουσική*, Βικιλεξικό,2022. https://el.wiktionary.org/wiki/%CE%BC%CE%BF%CF%85%CF%83%CE%B9%CE%BA%CE%AE
+- 
 
 
