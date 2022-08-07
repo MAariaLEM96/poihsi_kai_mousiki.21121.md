@@ -231,10 +231,17 @@ https://www.mothersblog.gr/free-time/story/35184/ethnikos-ymnos-elladas-oloi-oi-
 - Ετυμολογία και ορισμός,*΄΄Η μουσική δεν ήταν πάντα μουσικής΄΄*.
  https://sites.google.com/site/tinakidubstep/etymologia-kai-orismos
 - *Μουσική*, Βικιλεξικό,2022. https://el.wiktionary.org/wiki/%CE%BC%CE%BF%CF%85%CF%83%CE%B9%CE%BA%CE%AE
--  Μπομπέτσης Γαβριήλ, *΄΄Εκεί που τέμνεται η μουσική με την ποίηση΄΄,*, Φιλόλογος Ερμής,2022. https://www.filologos-hermes.info/2019/07/blog-post_13.html
-- Νικολοπούλου E., Πρωτονοταρίου Σ., Χαραβιτσίδη Π., *΄΄Ποίηση και μουσική: Μια διδακτική προσέγγιση΄΄,*, Γέφυρες, τευχ. 29, Ιούλιος-Αύγουστος 2006.
+-  Μπομπέτσης Γαβριήλ, *΄΄Εκεί που τέμνεται η μουσική με την ποίηση΄΄,* Φιλόλογος Ερμής,2022. https://www.filologos-hermes.info/2019/07/blog-post_13.html
+- Νικολοπούλου E., Πρωτονοταρίου Σ., Χαραβιτσίδη Π., *΄΄Ποίηση και μουσική: Μια διδακτική προσέγγιση΄΄,*Γέφυρες, τευχ. 29, Ιούλιος-Αύγουστος 2006.
  http://users.sch.gr/kolovos/poiisi_moysiki.html
 - Παπατσάνης Θάνος,*΄΄Ποίηση και Μουσική σε απόλυτη αρμονία-Τα μελοποιημένα ποιήματα΄΄,* Music Hunter,2020. http://musichunter.gr/ta-melopoihmena-poihmata/
+-  *΄΄Πες το με ποίηση (52ο): «Μουσική»…΄΄,*  Λόγος Παράταιρος «Παράταιρος ο λόγος ο δυνατός/ μέσα σε μια πολιτεία που σωπαίνει» (Γ. Ρίτσος), 5 Απριλίου, 2014. https://itzikas.wordpress.com/2014/04/05/%CF%80%CE%B5%CF%82-%CF%84%CE%BF-%CE%BC%CE%B5-%CF%80%CE%BF%CE%AF%CE%B7%CF%83%CE%B7-52%CE%BF-%CE%BC%CE%BF%CF%85%CF%83%CE%B9%CE%BA%CE%AE/
+- Πασχάλης Στρατής,*΄΄Ποίηση και Μουσική΄΄,* Poeticanet, 10 Φεβρουαρίου,2017.https://www.poeticanet.gr/moysiki-poiisi-a-1654.html 
+- *Ποίηση,* Βικιπαίδεια,2022. https://el.wikipedia.org/wiki/%CE%A0%CE%BF%CE%AF%CE%B7%CF%83%CE%B7
+- *Ποίηση,* Βικιλεξικό,2022. https://el.wiktionary.org/wiki/%CF%80%CE%BF%CE%AF%CE%B7%CF%83%CE%B7
+- *΄΄Ύμνος εις την Ελευθερίαν, Ποίημα του Διονυσίου Σολωμού, οι δύο πρώτες στροφές του οποίου σε μουσική του Νικολάου Μάντζαρου, αποτελούν τον Εθνικό Ύμνο της Ελλάδας και της Κύπρου΄΄,* Σαν σήμερα, 2002. https://www.sansimera.gr/articles/681
+
+
 
  
 
