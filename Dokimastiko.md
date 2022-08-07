@@ -221,5 +221,16 @@ http://musichunter.gr/ta-melopoihmena-poihmata/
 
 **ΒΙΒΛΙΟΓΡΑΦΙΑ**
 
-- *΄΄Αφιέρωμα Δεκατρία μελοποιημένα ποιήματα Παγκόσμια ημέρα ποίησης΄΄,Μουσικές εbeerίες, 21 Μαρτίου, 2022.*
+- *΄΄Αφιέρωμα Δεκατρία μελοποιημένα ποιήματα Παγκόσμια ημέρα ποίησης΄΄*,Μουσικές εbeerίες, 21 Μαρτίου, 2022.
 https://mousikesebeeries.gr/afieroma-dekatria-melopoiimena-poiimata-pagkosmia-imera-poiisis/
+- Διαμαντής Γιάννης Θ.,*΄΄ «Άξιον εστί» – Πώς γεννήθηκε το μνημειώδες έργο του Μίκη Θεοδωράκη και του Οδυσσέα Ελύτη,
+Η αρχική δυσπιστία, οι αντιδράσεις και η αποθέωση για ένα από τα κορυφαία έργα του ελληνικού πνεύματος΄΄,* 2 Σεπτεμβρίου, 2019.
+https://www.tovima.gr/2021/09/02/culture/aksion-esti-pos-gennithike-to-mnimeiodes-ergo-tou-miki-theodoraki-kai-tou-odyssea-elyti/
+-  *΄΄Εθνικός Ύμνος Ελλάδας: Όλοι οι στίχοι και η ιστορία του!΄΄*, Μothersblog Team, 25 Μαρτίου, 2016. 
+https://www.mothersblog.gr/free-time/story/35184/ethnikos-ymnos-elladas-oloi-oi-stixoi-kai-i-istoria-toy
+- Ετυμολογία και ορισμός,*΄΄Η μουσική δεν ήταν πάντα μουσικής΄΄*.
+ https://sites.google.com/site/tinakidubstep/etymologia-kai-orismos
+-*Μουσική*, Βικιλεξικό,2022. https://el.wiktionary.org/wiki/%CE%BC%CE%BF%CF%85%CF%83%CE%B9%CE%BA%CE%AE
+- Μπομπέτσης Γανριήλ, *΄΄''Εκεί που τέμνεται η μουσική με την ποίηση΄΄΄΄΄΄΄΄''*, Φιλόλογος Ερμής,2022. https://www.filologos-hermes.info/2019/07/blog-post_13.html
+
+
